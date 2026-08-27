@@ -1,0 +1,3 @@
+amar 
+naam 
+shoaib -vutka 
